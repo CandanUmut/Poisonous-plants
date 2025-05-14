@@ -6,7 +6,7 @@ Poisonous plants to be careful and their pictures
 
 ⸻
 
-🌿 Poisonous Plants in Yountville, California
+🌿 Poisonous Plants in California
 
 1. Oleander (Nerium oleander)
 	•	Appearance: Evergreen shrub with clusters of white, pink, or red flowers.
